@@ -1,0 +1,2 @@
+# Syukur-jarkom
+tugas
